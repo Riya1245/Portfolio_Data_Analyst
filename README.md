@@ -34,6 +34,6 @@ Excel
 ## Connect With Me
 
 GitHub: https://github.com/Riya1245
-LinkedIn: (Add your LinkedIn link)
+LinkedIn: (https://www.linkedin.com/in/riya-chourasiya-3376112a3/)
 
 Thank you for visiting my portfolio!
